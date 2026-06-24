@@ -62,4 +62,7 @@ Markdown
 *[Q10: If I want to place an order, what are the next steps?](https://www.fjfangda.com/sys-nd/37.html) 
 *[How does the environment affect load cells?](https://www.fjfangda.com/sys-nd/76.html) 
 *[How to choose a weighbridge weighing system for the mining industry?](https://www.fjfangda.com/sys-nd/75.html) 
-*[Q10: If I want to buy, how can I contact you? Can I visit the factory?](https://www.fjfangda.com/sys-nd/49.html) 
+*[Q10: If I want to buy, how can I contact you? Can I visit the factory?](https://www.fjfangda.com/sys-nd/49.html)
+*[Is an 80 Ton Weighbridge from China Worth Importing? Let’s Talk Real Numbers](https://www.fjfangda.com/sys-nd/236.html)
+*[2026 Guide to Weighbridge Prices in Africa – What You’ll Really Pay](https://www.fjfangda.com/sys-nd/234.html) 
+*[Analysis of the Total Cost of Weighbridge (Truck Scale) Projects: Why "Low Price" is Not the Optimal Choice?](https://www.fjfangda.com/sys-nd/138.html)
