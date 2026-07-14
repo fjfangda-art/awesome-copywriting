@@ -66,3 +66,5 @@ Markdown
 *[Is an 80 Ton Weighbridge from China Worth Importing? Let’s Talk Real Numbers](https://www.fjfangda.com/sys-nd/236.html)
 *[2026 Guide to Weighbridge Prices in Africa – What You’ll Really Pay](https://www.fjfangda.com/sys-nd/234.html) 
 *[Analysis of the Total Cost of Weighbridge (Truck Scale) Projects: Why "Low Price" is Not the Optimal Choice?](https://www.fjfangda.com/sys-nd/138.html)
+*[2026–2030 Top Weighbridge Manufacturers & Suppliers in China – A Comprehensive Directory](https://www.fjfangda.com/sys-nd/261.html)
+
